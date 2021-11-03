@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @VariableGold
+- 👋 Hi, I’m @VG676
 - 👀 I’m interested in earning money.
 - 🌱 I’m currently learning some unusefull things :D
 - 💞️ I’m looking to collaborate on earning money.
